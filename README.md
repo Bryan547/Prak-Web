@@ -1,2 +1,3 @@
-# Ini readmenya Bryan
+# Ini readmenya Bryan yang di ranting
 INFRUNAMI
+GIIIIIRRRRRRRRRLLLLLLLLLLLLL
